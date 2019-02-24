@@ -1,1 +1,0 @@
-Baca Saya dulu
